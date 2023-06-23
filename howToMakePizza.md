@@ -7,3 +7,10 @@
 7. Añadir queso mozzarella.
 8. Colocar el toping de preferencia (jamón, peperoni) y vegetales (tomáte, cebolla, pimientos)
 9. Hornear
+preparar la arina
+mezcalmos los ingredientes
+dejamos reposar
+estiramos
+agregamos la salsa y los ingredientes
+metemos al horno
+disfrutamos.
